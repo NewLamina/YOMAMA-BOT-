@@ -1,7 +1,7 @@
 Shop information
 
 Baker:
-Mr. ALEX KOH (Exquisite 3-star Michelin star bakery chef)
+Muhammad Danish Iman (Exquisite 3-star Michelin star bakery chef)
 
 Time open:
 Everyday from 9am to 6pm (Except wednesday)
@@ -10,9 +10,9 @@ Website Link:
 (https://chocolate-cakes-kijjl6g.gamma.site/)
 
 Location:
-Street - Jalan Tinju 13/50, Seksyen 13, 40100 Shah Alam
+Street - Lot 400. Kampung Batu 2 Sepintas, Jalan Kemboja, Sabak Bernam
 State/province/area - Selangor
-Zip code - 42600
+Zip code - 45300
 
 Phone Number:
 +60 19-439 5991
